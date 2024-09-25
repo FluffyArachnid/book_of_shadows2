@@ -1,0 +1,7 @@
+![[Nyx.jpeg]]
+![[gojo-satoru-gojo.gif]]
+![[FB_IMG_1723088370659.jpg]]
+![[flowers.gif]]
+![[daily-note-banner.gif]]
+![[rainy-day-bird.gif]]
+![[book-banner.gif]]
