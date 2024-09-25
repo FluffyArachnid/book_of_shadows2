@@ -3,6 +3,8 @@ tags:
   - Psychology
   - IFS
 share: "True"
+share_link: https://share.note.sx/6427690b
+share_updated: 2024-09-25T01:15:35-06:00
 ---
 
 ### When love stops~
